@@ -1,0 +1,5 @@
+# Preparation
+- Position a rack in the center of the oven and heat the oven to 350°F. In a medium bowl, whisk the flour, baking powder, and salt to blend. Using a stand mixer with the paddle attachhment or a hand-held mixer, beat the butter and sugar on medium speed until light and fluffy, about 3 min. Scrape the bowl with a rubber spatula. Beat in the egg and vanilla until thoroughly combined, about 2 min. Scrape the bowl again. With the mixer on low speed, slowly blend in the flour until incorporated, about 30 seconds.
+- Drop the dough by rounded tablespoonfuls into a bowl of granulated sugar and roll to coat; then set the coated balls about 3 inches apart on ungreased cookie sheets.
+- Bake until the cookies are golden brown on the edges and slightly soft in the center, 15 to 18 min. Let the cookies cool on the sheet for 1 min. before transferring them to a rack to cool.
+- The cookies can be stored in an airtight container for up to three days.
